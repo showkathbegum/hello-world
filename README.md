@@ -1,2 +1,8 @@
 # hello-world
-just an repositary
+
+
+hello humans 
+
+my new repositary!!!!!!
+
+new bravo
